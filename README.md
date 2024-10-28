@@ -1,1 +1,9 @@
-# TRA3107
+java c
+TRA3107 Literature, Culture and Translation
+Translation Assignment
+Submission Deadline: 23:59, 3 Nov 2024 (Sun)
+Translate the following book introduction with excerpts into Chinese.The Snows of Yesteryear (1989) is Gregor von Rezzori's haunting evocation of his childhood in Czernowitz, in present-day Ukraine. Growing up after the First World War, Rezzori portrays a twilit world suspended between the dying ways of an imperial past and the terrors of the twentieth century. He recalls his volatile, boar-hunting father, his earthy nursemaid, his fragile, aristocratic  mother,  his  adored  governess  and  the  tragic  death  of  his beloved sister, in a luminous story of war, unrest, eccentricity, folktales, dark forests, night flights, and what it is like to lose your home.Swarms of waxwings have settled in the ripe clusters of rowanberries. It is said that they come only every seven years from hi代 写TRA3107 Literature, Culture and Translation
+代做程序编程语言gh up north, from Lapland or Siberia, and only when the winter threatens to turn exceptionally severe. They're also called plague birds, eventhough they appear rather pretty: plump and colorful, with a saucy crest, velvety blackheads and throats, white-banded wings on scarlet pinions and tails edged in lemon yellow. Their fluffy breasts, of a rosy mother-of-pearl hue, crowd against the spiky gridwork of the cluster stems as they busily pick the red berries. A sudden detonation: someone is shooting with birdshot into the swarm, which rises like smoke above the crowns of the rowan trees. But a good dozen of the birds tumble from the fruit clusters down into the snow amidst fallen berries and drops of blood. Who can tell whether the survivors will ever return? The clusters are torn to shreds and the denuded twigs show as a rigid pattern against the pale winter sky.
+
+         
+加QQ：99515681  WX：codinghelp  Email: 99515681@qq.com
